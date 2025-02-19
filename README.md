@@ -1,1 +1,0 @@
-# Ethnus_Assignment1
